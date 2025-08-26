@@ -54,7 +54,7 @@ I’d love your feedback to improve future templates.
 
 ## 📬 Connect with Me  
 
- 
+ https://www.linkedin.com/in/mohammad-najmul-islam-rayhan-88a394229/
 
 If you like this template, don’t forget to **star ⭐ the repo** and share it with others!  
 
